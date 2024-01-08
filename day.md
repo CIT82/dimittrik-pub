@@ -9,4 +9,5 @@
 ## Plans for the rest of the day
 1. Do as many college assigments as possible  
 ![Bocchi the Rock, Possessed](https://cdn.7tv.app/emote/636c96c3cb5f97f7fb2f1ffa/4x.gif)
-######  2. Sleep
+2. [huh](https://youtu.be/xVWeRnStdSA?si=IQ6GRKQgiNAl2IW5)
+######  3. Sleep
